@@ -1,4 +1,4 @@
-Hi, I’m @xxXFreezerXxx, New account of @bakabaka99.
+Hi, I’m @xxXFreezerXxx, New account of @bakabaka99. xX_Freezer_Xx is already used, so I added 2 x lol
 Some people already know but I have scratch, Youtube, Twitter and discord. I think you can find me if you search xX_Freezer_Xx.
 I don't know how to use Github so much xd<br>Intros, games, arts and more!
 <!---
