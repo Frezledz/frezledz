@@ -2,7 +2,7 @@
   
 ### Welcome to my profile! 👋
   
-![xX_Freezer_Xx's GitHub Stats](https://github-readme-stats.vercel.app/api?username=xxXFreezerXxx&show_icons=true&bg_color=0,33A1FD,FDCA40&title_color=fff&text_color=fff&icon_color=E5E7E9&hide_border=true)
+![xX_Freezer_Xx''s GitHub Stats](https://github-readme-stats.vercel.app/api?username=xxXFreezerXxx&show_icons=true&bg_color=0,33A1FD,FDCA40&title_color=fff&text_color=fff&icon_color=E5E7E9&hide_border=true)
   
 </div>
 
