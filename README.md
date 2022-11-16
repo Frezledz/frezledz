@@ -6,7 +6,8 @@
   
 </div>
 
-Hi, I’m xxXfreezerXxx. My actual name is xX_Freezer_Xx but the name was already used! I'm active on [scratch](https://scratch.mit.edu/users/xX_Freezer_Xx), [Youtube](https://www.youtube.com/c/xXFreezerXx512), [twitter](https://twitter.com/xX_Freezer_Xx) and discord.  
+Hi, I’m xxXfreezerXxx. My actual name is xX_Freezer_Xx but the name was already used!  
+I'm active on [scratch](https://scratch.mit.edu/users/xX_Freezer_Xx), [Youtube](https://www.youtube.com/c/xXFreezerXx512), [twitter](https://twitter.com/xX_Freezer_Xx) and discord.  
 Intros, games, arts and more!  
 きゅうです。
 <!---
