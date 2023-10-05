@@ -2,9 +2,9 @@
   
 ### Welcome to my profile! 👋
   
-![xX_Freezer_Xx'ss GitHub Stats](https://github-readme-stats.vercel.app/api?username=xxXFreezerXxx&show_icons=true&bg_color=0,33A1FD,FDCA40&title_color=fff&text_color=fff&icon_color=E5E7E9&hide_border=true)
+![frezledz'ss GitHub Stats](https://github-readme-stats.vercel.app/api?username=xxXFreezerXxx&show_icons=true&bg_color=0,33A1FD,FDCA40&title_color=fff&text_color=fff&icon_color=E5E7E9&hide_border=true)
   
-Japanese hobbyist who likes coding/motion designs.  
+__***Japanese hobbyist***__ who likes coding/motion designs.  
 きゅうです。
 <!---
 xxXFreezerXxx/xxXFreezerXxx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
